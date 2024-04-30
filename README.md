@@ -1,1 +1,1 @@
-![layout_Mastery_new](https://github.com/thanhlucifer/CyberSoft_Mastery/assets/88926531/d9e68e7a-12f4-4aa3-baea-cf51f7fd8315)
+![screencapture-127-0-0-1-5500-Mastery-index-html-2024-04-30-23_53_45](https://github.com/thanhlucifer/CyberSoft_Mastery/assets/88926531/b2beac54-8d79-4223-812e-39eb5098cbb4)
